@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ChieFIssa
+- 👀 I’m interested in Technology 
+- 🌱 I’m currently learning Bot development 
+- 📫 How to reach me Instagram.com/izahgraphics45/
